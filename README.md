@@ -21,4 +21,4 @@ You probably has heard the story of "Bat Woman" Zheng-li Shi in Wuhan biolab, le
 
 【3】On Aug 19th, the CDC center in Atlanta, was ending an Exercise called "Crimson Contagion" across the United States for months. The premise was a noval flu-like virus that originated from Sichuan Province of China swept across the globe by flights and other transformation means. So the US CDC did prepare for such a crisis, half a year before hand.
 
-There are 40 events that were actual news and findings published in the public media. Check the doc file for details. In case of deletion of important videos from platforms (which already happened to a few of them) downloaded videoclips as well as pictures are also stored.
+There are 40 events that were actual news and findings published in the public media. Check the doc file 'Covid-19 Chronicles...' for details. In case of deletion of important videos from platforms (which already happened to a few of them) downloaded videoclips as well as pictures are also stored.
